@@ -12,3 +12,4 @@ https://trupercorp-my.sharepoint.com/:x:/g/personal/dreynosoh_truper_com/EQANNdZ
 Catalogo wcm
 https://trupercorp-my.sharepoint.com/:x:/g/personal/dreynosoh_truper_com/Ea_ORYANO1BBjhjJwPNUOY4BThbkvtHycRVnICewOND9RA?e=9yJgey
 
+Eibelgood, es el resultado como ejemplo :)
